@@ -733,4 +733,137 @@ Hey!
 
 Raymond gets the pears, too?
 
+---
+
+They all went down for a nap.
+
+This is over the top.
+
+It's the best birthday I have ever had.
+
+Hey, hey. What are you doing? No, no.
+
+Letting in the light.
+
+It's still your birthday, thought.
+
+We want to have a nice cozy birthday.
+
+Isn't that cozy?
+
+I know what you're up to.
+
+You do?
+
+Yeah. Come here.
+
+Oh yeah, this is what I'm up to.
+
+I thought this only happened on my birthday.
+
+Ray, I'm so glad you set your parents straight.
+
+Doesn't feel good to be honest with them?
+
+It does feel good.
+
+Not as good as this, though.
+
+You were 100% right.
+
+I don't know what I was afraid of.
+
+Oh!
+
+What are you doing here?
+
+What are you doing here?
+
+We live here.
+
+We thought you were in Bear Mountain.
+
+Bear Mountain? Who told you that?
+
+Raymond.
+
+You want to holster the weapon, Rob?
+
+Well.
+
+Okay, I lied. I lied to everybody.
+
+I was trying to make everybody happy.
+
+Nice job.
+
+I should have known better. Why did...
+
+Especially with me parents, the only people who treat a box of fruit like it's plutonium.
+
+I chickened out. I made a mistake.
+
+All right, look.
+
+The truth is Debra wanted us to have a day to ourselves.
+
+And me, too. But Debra's the one.
+
+She's got it very hard around here, though she's never said that to me.
+
+I've noticed it.
+
+Like Dad. I know you try to be funny, but...
+
+Like with the twins.
+
+Maybe you shouldn't say: `I think little Matthew has homosexual tendencies.`
+
+And, Ma, you can't be so critical.
+
+If you're going to be critical could you please call before you come...so we could be ready for it?
+
+Both of you. Could you both call?
+
+We have to prepare.
+
+There's bills and receipts we hide and then we chant a little.
+
+Now listen, we love you both but this is our house and Debra's my wife.
+
+And if you can't accept what I'm telling you...then you can't come over here anymore.
+
+Unless you call first.
+
+That's it. I think I did it all.
+
+What? This has nothing to do with me.
+
+Robert, could you try not to eat near the kids?
+
+If you just wanted a day to yourself all you had to do is say so.
+
+We'd understand.
+
+Of course we'd understand.
+
+What's not to understand?
+
+When did he get so sensitive?
+
+He's a writer.
+
+Happy birthday.
+
+I'm shaking.
+
+Oh honey, you were just great.
+
+Come here.
+
+Maybe you should put on that bustier.
+
+What are you doing?
+
+We'll try again on my birthday.
 
