@@ -867,3 +867,168 @@ What are you doing?
 
 We'll try again on my birthday.
 
+---
+
+# EP-2
+
+I wanna thank you for your time, Mr.Lasorda.
+
+Okay, Tommy.
+
+I really appreciate this interview.
+
+This will be real quick.
+
+Okay. Now that you're retired...I was wondering where do you think you're going with that...cookie!!!
+
+Put the cookie down.
+
+No, no, not you, Mr.Lasorda.
+
+I scared you? I didn't mean to scare you.
+
+I didn't know you were eating a cookie.
+
+---
+
+Don't you love Nemo's at night?
+
+The candles.
+
+Yes.
+
+Twinkly lights.
+
+I know.
+
+Such a romantic atmosphere.
+
+Yeah.
+
+That's why the Pope eats here.
+
+You think he really said: `To my buddy Nemo. Your pizza is infallible.`
+
+Hey, he's good luck.
+
+Yeah. We've got a picture of him down at the shop riding a Jet Ski.
+
+No.
+
+That was my idea.
+
+You see, she's brainy and beautiful.
+
+And loose.
+
+Did you order foreplay?
+
+I didn't order foreplay.
+
+You okay, honey? You're sweating.
+
+I sweat before I throw up.
+
+Two melanzanes.
+
+Yeah, here.
+
+Extra sauce.
+
+She's the saucy one.
+
+And the assorted fried cheeses plate.
+
+He's the fat one.
+
+Bon appetit.
+
+Wow!
+
+Babe, let me see it.
+
+Here, you want some ice, Bernie?
+
+I got what Bernie needs. Come here.
+
+You got what I need, Ray?
+
+A gun?
+
+Hey, that's tongue.
+
+Thought you were a vegetarian.
+
+What, you've never kissed in front of anybody?
+
+Yeah, I'm sure we have.
+
+There was that one at our wedding.
+
+That's it?
+
+Come on, the Pope.
+
+---
+
+Hey, watch this. Try it like this, okay?
+
+Stella!!
+
+Stella!!
+
+Attagirl
+
+What are you doing?
+
+Brando. I could have been a contender.
+
+Hello, dears.
+
+Were you in my office, Mom?
+
+Yeah. I was trying to get a pen to do the crosswords.
+
+You know your desk drawer is locked?
+
+Yeah, we lock it now.
+
+Yeah, it keeps the kids out.
+
+That's a good idea.
+
+I broke a knife in it.
+
+Okay. Let's get to bed, Ally.
+
+Hey, shower's broken.
+
+Must have been loose because when I fiddled with it...it came right out of the wall.
+
+What are you doing?
+
+What are you taking a shower over here for?
+
+He came home from work, and we were here...and you know your brother he doesn't like to be alone in the house.
+
+Could we go now? I'm cold.
+
+Oh, sure. Come on, let's go.
+
+Oh, that's my towel.
+
+But we can get it later.
+
+I'll patch the shower up for you tomorrow.
+
+Of course you will.
+
+You know that shampoo that says No more tears?
+
+Yeah.
+
+There's tears.
+
+
+
+
