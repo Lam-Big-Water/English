@@ -186,3 +186,104 @@ a detached house
     10. My room is on the top floor.
     11. The house has big rooms with high tall ceilings.
     12. I can hear my neighbour's telephone through the thin walls of my flat.
+
+3. Key word quiz
+    1. I've booked a single room at the Holiday Inn.
+    2. He split paint on the carpet while he was painting the wall.
+    3. Remember to lock the front door when you leave for work.
+    4. Someone's left the light on in the bathroom again!
+    5. If you're ever passing our house, drop in for a chat.
+    6. Shall we take the lift or use the stair?
+    7. Don't play football near the houses. You might break a window.
+    8. I'm afraid the heater has broken down, so it's a bit cold in here.
+
+4. Prepositions
+    1. I dropped my pencil and it rolled across the floor.
+    2. I stuck a map of Malaysia on my wall.
+    3. We had a great view of the sea from our window.
+    4. There's somebody at the door. Can you see who it is?
+
+- table
+1. Verb + table
+    1. Roberta, would you set the table while I cook breakfast? The knives and forks are in the drawer next to the fridge.
+    2. My father always 
+    3. Yuan, could you clear the table and put the dirty dishes in the sink. I'll wash them later.
+    4. When I was a child, we had to ask permission before we could leave the dinner table.
+    5. We were lucky to book a table. The restaurant was really busy when we got there.
+    6. When we arrived at the restaurant, we were shown to our table by the head waiter.
+    7. Hello. Is that the Golden Lotus? I'd like to manage a table for four, please. Around 8:30?
+
+2. Common expressions
+    1. I've set a place for you on the table. You're sitting next to Michael.
+    2. We'll easily get eight people at the dining table for Christmas dinner.
+    3. I accidentally knocked over a glass of the wine while I was reaching across the table to get the salt.
+    
+- drawer
+1. Common expressions
+    1. I've look in all the drawers in the house, but I can't find my passport anywhere.
+    2. We keep the scissors in the top drawer where our son can't reach them.
+    3. I'm having trouble opening this drawer - it's very stiff. Can you try?
+    4. My mother finally found her wedding ring at the back of the drawer in her bedroom.
+    5. He opens the drawer of his desk and took out some writhing paper.
+    6. I'd love to read my sister's diary, she keeps it in a drawer in her room, which she always lock when she goes out.
+
+- chair
+1. Common expressions
+    1. I put my feet up on the desk, leaned back in my chair and tried to relax.
+    2. I don't know what's wrong with him! He just got up from his chair and left without saying a word!
+    3. It was no accident. He fell off his chair because he was drunk!
+    4. At the end of the meal he pushed back his chair and got up to make a speech.
+    5. When I arrived my grandfather was sitting in his favourite chair by the fire.
+    6. I was so tired after work, I just dropped my bags and flopped into the nearest chair.
+
+- mirror
+1. Verb / adjective + mirror
+    1. There's a full-length mirror behind the door of the wardrobe in the bedroom.
+    2. They say you get 7 year's bad luck if you break a mirror.
+    3. There's a large mirror, hanging above the fireplace in the living room.
+    4. She never leaves the house without looking at herself in the hall mirror.
+    5. I find it difficult to shave when the bathroom mirror is all steamed up.
+    6. When I looked in the mirror, I noticed a small spot on the tip of my nose.
+    7. Rob was standing in front of a mirror, trying on a new suit, when I last saw him.
+2. note
+    1. I adjusted the side mirrors, then glanced in the rear-view mirror to see if anyone was behind me.
+
+- bed
+1. Verb + bed
+    1. We've trained our kids to tidy their rooms and make their beds before they go to school in the morning.
+    2. I was very tired when I got home, so I go straight to bed.
+    3. I had a lazy day yesterday. I didn't get out of bed until lunchtime.
+    4. Oh, it's you, Mary! Jane's upstairs put the children to bed. I'll get her to ring you back later. Is that Ok?
+    5. I think we'd better go to the beds before your parents come for the weekend. You know what your mother is like!
+
+2. Kinds of bed
+    1. I'm afraid we don't have a double room, but we have a twin with two single beds.
+    2. The bed's too soft for me. I prefer a very hard mattress.
+    3. Thanks. I slept very well. It was a really comfortable bed.
+    4. You can spend the night here if you want - we have a spare bed.
+    5. When I was a boy, my brother and I had bunk beds. I slept on the top bed.
+    6. Our daughter's room is in a mess as usual. The bed's unmade and there are dirty clothes all over the floor.
+
+3. Common expressions
+    1. Last Saturday I lay in bed all morning and read a book.
+    2. I like to be in bed by 10 o'clock on weekdays.
+    3. My father always has breakfast in bed on a Sunday morning.
+    4. It can be dangerous to smoke in bed.
+    5. I spent four days in bed with flu last week.
+    6. The children are safely tucked up in bed.
+
+- sheet, blanket, pillow, mattress, wardrobe, alarm, curtains
+1. Verb and adjective collocation
+    1. I open the wardrobe, chose a shirt, then tried to decide what tie to wear with it.
+    2. It was colder than usual, so I put an extra blanket on my bed.
+    3. My mother always change the sheets on our beds on a Sunday because Monday is her washing day.
+    4. I set the alarm for seven, but it didn't rings. That's why I was late for work.
+    5. Jack and Sue want to stay over on Saturday night. Could you put some clean sheets on the bed in the spare room?
+    6. The first thing I do when I get out of bed in the morning is to draw the curtains, and see what the weather's like.
+    7. All the bedrooms in our new flat have hand wardrobes, so there's plenty of storage space for our clothes.
+
+2. Preposition focus
+    1. Can you hang these trousers on the wardrobe please?
+    2. I prefer to sleep on a firm mattress. If it's too soft, I find it gives me a sore back.
+    3. I propped myself up at a couple of pillows, so that I could read comfortably in bed.
+    4. When I went into her room, Farah was crying in her pillow.
