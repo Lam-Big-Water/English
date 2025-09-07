@@ -205,7 +205,7 @@ It comes from love.
 
 ---
 
-If you want maybe I'll talk to my father about it.
+Look, if you want maybe I'll talk to my father about it.
 
 While you're talking to him would you mind mentioning the answering machine?
 
@@ -395,7 +395,7 @@ Then he sits down, has a hot dog, doodles on a piece of paper...they give him a 
 
 To tell you the truth, I think that Raymond is wasting his life writhing sports.
 
-I mean, writers should ne writing short stories and poetry.
+I mean, writers should be writing short stories and poetry.
 
 You think I'm wasting my life?
 
@@ -437,7 +437,7 @@ I'm sucking in that youth.
 
 Dad, I'm begging you, Dad, let go of their heads.
 
-I'll give you money. You want the money?
+I'll give you money. Hey, you want the money?
 
 Hey, save your money. You're gonna need it.
 
@@ -569,7 +569,7 @@ I just cleaned down there.
 
 ---
 
-Raymond, come in, honey.
+Oh, Raymond, come in, honey.
 
 Hi, Mom.
 
@@ -619,7 +619,7 @@ How many pears can Robert eat?
 
 I appreciate the thought, Raymond, but please don't ever send us any more fruit again, ok? Thanks.
 
-Another box is coming next month.
+Well, another box is coming next month.
 
 What? More pears?
 
@@ -839,7 +839,7 @@ That's it. I think I did it all.
 
 What? This has nothing to do with me.
 
-Robert, could you try not to eat near the kids?
+Oh, yeah. Robert, could you try not to eat near the kids?
 
 If you just wanted a day to yourself all you had to do is say so.
 
@@ -859,7 +859,7 @@ I'm shaking.
 
 Oh honey, you were just great.
 
-Come here.
+Oh, come here.
 
 Maybe you should put on that bustier.
 
@@ -1029,6 +1029,649 @@ Yeah.
 
 There's tears.
 
+---
+
+Oh yeah. Definitely broken.
+
+You know how I could tell?
+
+There should be a bathroom right here.
+
+You know, it's gotta be hard on Robert, being so gigantic.
+
+When he was a kid he wasn't allowed to pet the cat.
+
+Come on. He couldn't pet the cat.
+
+Oh God, you're not okay. You're not.
+
+I'm fine, Ray.
+
+See, I would have believed it if you didn't add the Ray.
+
+Look, do you mind? I have to pack.
+
+I'm leaving with the Mets tomorrow.
+
+Yeah, go ahead.
+
+It's my brother, right? 
+
+No, it's...
+
+It's my father. Yes, he's really annoying.
+
+No, it's not.
+
+It's my mom. Right, yeah, she broke our knife.
+
+Let's kill her.
+
+Come on. You're always saying we don't do things together.
+
+We'll kill her, and then a movie.
+
+I don't know what I did.
+
+I'm usually good at knowing when it's me.
+
+Because it's usually me.
+
+Ray, how come you can never just be affectionate with me?
+
+Oh, Bernie.
+
+Did you see how Bernie is with Linda?
+
+I see. Everybody sees that. it's free Playboy Channel.
+
+There's nothing wrong with it once in a while.
+
+He was drinking.
+
+So passionate.
+
+They're drunks. Both of them.
+
+Look, they've only been married for what, two years?
+
+Yeah.
+
+So there's no kids, no exhaustion. Just wait.
+
+Wait for what?
+
+For this.
+
+The noise, the no-sleep, and the no-time.
+
+Please, know what I mean here.
+
+You never even say, I love you.
+
+Oh, now I don't love you.
+
+You don't say it.
+
+I do.
+
+No, you don't.
+
+I do.
+
+When do you say?
+
+With my eyes.
+
+What are you doing?
+
+I'm drowning.
+
+Look, you want me to say it? I love you. There, I said it.
+
+Yeah. Okay. There's the seven little words every woman wants to hear: I love you. There, I said it.
+
+Come on. Don't I say it when we--
+
+Yelling it during sex doesn't count.
+
+I don't know what you want.
+
+Well--
+
+What?
+
+I don't know. Just...Doesn't matter.
+
+Good night.
+
+I'm still packing over here.
+
+Good morning, everybody.
+
+Hi.
+
+Hey, guys.
+
+Here, this is for you.
+
+What is this? A card.
+
+Got up early to get it for you.
+
+Why?
+
+You know, 'cause of what we, you know...
+
+To a special wife.
+
+Love like ours is real and true.
+
+As a lily holds the morning dew.
+
+Every day finds joy anew.
+
+And in every way do I love you.
+
+Yeah.
+
+That's really sweet, Ray.
+
+Yeah?
+
+Yeah. I just love it.
+
+It's a really nice card.
+
+Oh, something's wrong.
+
+What? It's not enough?
+
+Oh, I should've got the pop-up.
+
+Maybe you just...
+
+You didn't understand what I meant.
+
+You still want the talking.
+
+Look, this is better than talking. This is writing.
+
+You couldn't even sign it, Love, Ray.
+
+You signed it, Okay? Ray.
+
+Look, you know me. You know.
+
+This all me makes me uncomfortable.
+
+When I say, I love you, it doesn't sound natural.
+
+It's like some bad movie.
+
+Somebody's gonna laugh at me.
+
+What do you mean, laugh?
+
+Somebody's gonna laugh at me saying that stuff.
+
+Stuff?
+
+You love me, Daddy?
+
+Yes, of course I love you.
+
+I love all you guys. And Mommy. What a Mommy.
+
+Let's hear it for Mommy.
+
+Raise your hand for... Yeah.
+
+Look, I'm sorry. I'm just not good at saying that stuff aloud.
+
+That's the way I am.
+
+That's the way my parents were.
+
+Okay, but you know, maybe there was something wrong with that.
+
+I mean, come on, you wanna pass this trait on to your kids?
+
+No.
+
+Ray. I love you.
+
+And I you.
+
+Oh...
+
+Come on.
+
+Come on. It's all here in the card.
+
+Debra. Debra.
+
+Stella.
+
+---
 
 
+Stupid, stinking pump. Don't toy with me, God.
+
+Hey, Dad. Iced tea?
+
+No. It gets me all hopped up.
+
+I'm almost done here.
+
+Damn piece of crap.
+
+Please, Dad, take it easy a little.
+
+I don't know what I'm doing?
+
+Yeah, sure you do. But relax.
+
+Give me the damn pliers.
+
+Thanks.
+
+Listen, Dad, I gotta ask you something.
+
+There, done.
+
+A couple of things you gotta remember. It's very easy.
+
+Yeah. Like what?
+
+It's nothing. Hot is now cold.
+
+What else? Is the water gonna come out?
+
+Yeah, sure. Here's what you do.
+
+You hold on to this one tight. And then you push and turn with this one.
+
+You're going to need at least two hands.
+
+Yeah. At least.
+
+The water comes out very hot at first.
+
+But save that. You're gonna need it later.
+
+Dad, shut it.
+
+Here, give me a hand.
+
+Turn. Turn.
+
+I'm turning.
+
+Turn it.
+
+I'm turning it.
+
+Thanks.
+
+Listen, Dad.
+
+I was wondering something.
+
+When was the last time...that you said, I love you...to anybody?
+
+I love you?
+
+Yeah.
+
+What, do you live in a freaking fairyland or something?
+
+Dad, I just wanted to know.
+
+This is real life, Raymond. People don't just go around saying that.
+
+Yes, they do, Dad.
+
+Name one. Name one person.
+
+Debra.
+
+That's an act.
+
+It's not an act, Dad. She means it.
+
+All right, come on. Maybe Debra.
+
+But she's nice.
+
+Why are you asking me these thing?
+
+I just wanna know, that's all.
+
+Do you ever say it to Mom?
+
+You're getting kind of personal now.
+
+Dad, you're my father.
+
+Your mother and I know how we feel.
+
+That's our business.
+
+What? Hello, Raymond, sweetie.
+
+Hi, Ma.
+
+How you doing?
+
+What's our business?
+
+Nothing. Mind your own business.
+
+You said our business.
+
+What are you two talking about?
+
+Nothing, Ma, it's okay.
+
+You got him lying for you now?
+
+Go away.
+
+I chop up celery and dill for your rotten tuna sandwich...and I drag it across the street for you, and you don't even have the decency...
+
+Hey, that's my freaking lunch.
+
+Come on, it's nothing.
+
+I was asking, that's all. I was just asking...how come nobody ever says, I love you around here?
+
+But I'm starting to realize what a stupid question that is.
+
+No, that's not stupid at all, dear.
+
+There happens to be a very good explanation for it, though.
+
+Your father doesn't know what love is.
+
+Okay. Oh, boy. Here we go.
+
+When we first were married...I said it all the time.
+
+Name one time.
+
+All the time.
+
+When, when did you say it?
+
+I said it all the time.
+
+I happen to be a very loving, caring woman.
+
+You know that, Raymond.
+
+But, I mean after years and years of giving and sharing...and getting nothing in return, one tends to--
+
+You said it one time in Albany.
+
+Shut up.
+
+One time.
+
+Shut up.
+
+The night you had the rum candy.
+
+Shut up. You see what I have to put up with?
+
+Look, you don't have to say it. It's okay.
+
+Why is it so important to you all of a sudden?
+
+My parents never said it.
+
+When you were a kid, didn't you want your parents to say it to you?
+
+Of course.
+
+But they didn't
+
+Why?
+
+They didn't wanna spoil us.
+
+This is the way we wanna be?
+
+Is this the way we want the kids to be?
+
+What would be so wrong with saying I love you around here once in a while?
+
+Well, we're not living in a fairyland here, Raymond.
+
+Hey, hot and sour soup.
+
+Give me a hand with these guys.
+
+Come on, guys, it's fun in the sink.
+
+You love it, don't you?
+
+Look at that. Look at how the grease separates.
+
+Squeaky and shiny clean.
+
+Hey, I can see myself.
+
+Yeah, if you look a little lower.
+
+Hey, this has a crack in it.
+
+All right, look, you're right.
+
+You're right.
+
+I'll try and change the way I am or something.
+
+You mean that?
+
+Ah...we're leaving now.
+
+Okay, thanks. Thanks, Dad.
+
+The shower's fixed...and there's just one thing I want you to know.
+
+Well, we've been talking and...You go ahead, Frank.
+
+I love you.
+
+I love you.
+
+Oh, God Mom, no.
+
+I love you, Debra.
+
+You can stop, Ma.
+
+Ma, you're scaring them.
+
+Go. Save the children.
+
+All right. Okay. It's okay.
+
+Hi.
+
+Oh, Robbie, sweetheart.
+
+I love you. I'm so sorry.
+
+Sorry for what?
+
+For never saying it.
+
+But from now, I'm gonna say it to you all the time, all of you.
+
+Even Frank. I love you.
+
+Isn't this the part of the movie...where she's supposed to get shot by the real her?
+
+We're here for such a short while. Your family should know how you feel.
+
+I'm feeling it's not that short a while.
+
+To tell you the truth, I felt kind of embarrassed at first, too.
+
+But now...
+
+Oh, God.
+
+I love you, son.
+
+All right. Thanks, Dad. Me, too.
+
+I'll be over here.
+
+What?
+
+Well, you're my brother.
+
+I love you, Raymond.
+
+Isn't that nice?
+
+Come on. Don't. Enough already. Oh, God.
+
+What the hell is going on here?
+
+I told them what we were talking about.
+
+What Why?
+
+I thought I could find out why I was the way I was.
+
+But now I know why.
+
+I'm from a mental institution.
+
+I love you, Deb.
+
+No, Robert.
+
+No.
+
+Remember the cat.
+
+Thanks, Rob. I love you, too.
+
+Ray, this is not what I wanted.
+
+Could everybody just go back to normal?
+
+I think it was much better before everybody loved each other.
+
+Wait a minute.
+
+This is between you two.
+
+This is your problem.
+
+Yeah. I was trying to find out why I'm not the most...demonstrative guy, and I thought--
+
+You thought it was our fault.
+
+It's typical. You blame the parents.
+
+This is your problem and the first thing kids do today is point to the mother.
+
+Nobody's pointing, Ma.
+
+If it's anybody's fault, it's your father.
+
+Oh, please, just stop.
+
+I don't understand. Why do you deal with important things we talk about like this?
+
+I'm sorry to ever bring them up.
+
+I' sorry, too.
+
+I'll tell you one thing, Ray.
+
+I'll never bother you on this subject again.
+
+I promise.
+
+Okay, let's just forget I ever said anything, all right?
+
+Come on, Deb.
+
+Your plane leaves in two hours.
+
+You haven't even packed yet.
+
+Oh, God Look, I'm sorry.
+
+I'm sorry. I'm sorry I'm such a screw-up.
+
+This love stuff, we never mention it again.
+
+
+---
+
+Oh!
+
+Hey!
+
+I made the bed.
+
+Yeah. I see.
+
+Listen--
+
+Don't.
+
+What?
+
+You don't have to say anything.
+
+I don't?
+
+No.
+
+You know what?
+
+What?
+
+I'm gonna miss my plane.
+
+Okay.
+
+I'll call you.
+
+Okay.
+
+I'll call you when I get there.
+
+All right.
+
+Bye.
+
+I love you.
+
+Oh, beautiful.
+
+I'm sorry, honey.
+
+That's all. Cards. Only cards from now on.
+
+Yeah, your I love you is going to come from Disney.
+
+---
+
+Yeah, I miss you, too.
+
+Okay. I'll see you tomorrow. And, honey...I love you.
+
+Good. Well, get used to it because I'm gonna say it all the time.
+
+Okay. Now give the phone to Mommy.
 
