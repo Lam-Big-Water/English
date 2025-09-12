@@ -77,7 +77,7 @@ Look at this. Cal Ripken signed my hat.
 
 Oh. That's great. Look at this.
 
-Gregory spit up on my shirt.
+$ Gregory spit up on my shirt.
 
 I'm not trading. 
 
@@ -85,9 +85,7 @@ Okay.
 
 Just be happy you're home for my birthday. That's all I can say.
 
-What? of course I'm home for your birthday.
-
-Are you kidding? Your birthday is Sunday.
+What? of course I'm home for your birthday. Are you kidding? Your birthday is Sunday.
 
 That's right.
 
@@ -241,7 +239,7 @@ Come on. He loves the kids.
 
 It's just like... The way Robert eats, you know.
 
-The way he has to touch every bite to his chin before he puts it in his mouth.
+$ The way he has to touch every bite to his chin before he puts it in his mouth.
 
 That's weird.
 
@@ -257,9 +255,7 @@ Because he's a good cop and they didn't make him count. Or eat.
 
 I don't know, Ray.
 
-It's just that it's every day.
-
-And between them and the kids.
+It's just that it's every day. And between them and the kids.
 
 I just feel...
 
@@ -295,9 +291,9 @@ I'm sorry.
 
 Want to go to Nemo's, get a slice?
 
-Leo, my kids aren't fish.
+$ Leo, my kids aren't fish.
 
-You can't just sprinkle food over their crib and leave.
+$ You can't just sprinkle food over their crib and leave.
 
 Call your mother.
 
@@ -413,11 +409,11 @@ What are you doing, everybody?
 
 Debra's gonna be...
 
-Okay. I'm gonna ask you to quickly and quietly move to your nearest exits!
+$ Okay. I'm gonna ask you to quickly and quietly move to your nearest exits!
 
 It's the fourth quarter.
 
-Dad, please. Buckle up and go!
+$ Dad, please. Buckle up and go!
 
 You know, when somebody does you a favor, you're supposed to say, "Thank you."
 
@@ -487,7 +483,7 @@ Ray!
 
 What?
 
-Why do the boy's heads smell like Old Spice?
+Why do the boys heads smell like Old Spice?
 
 What?
 
@@ -509,7 +505,7 @@ No, my father and brother were here, too.
 
 What?
 
-I got rid of them and then I did some cleaning.
+$ I got rid of them and then I did some cleaning.
 
 You notice the cleaning down there.
 
@@ -593,7 +589,7 @@ My God, talk about birthdays.
 
 Your birthday gift to me finally came this morning.
 
-Did you know you sent me a box of pears?
+$ Did you know you sent me a box of pears?
 
 Yeah.
 
@@ -663,7 +659,7 @@ Oh, Ray.
 
 Do you know that the fruit keeps coming month after month?
 
-He's got us in some kind of a cult.
+$ He's got us in some kind of a cult.
 
 It's not a cult, it's a club.
 
@@ -689,7 +685,7 @@ Ok, thank you, Raymond.
 
 And don't do that again.
 
-Like we don't have enough problems!
+$ Like we don't have enough problems!
 
 Okay, listen, I got to talk about the party.
 
@@ -705,7 +701,7 @@ We're not gonna have a party.
 
 You got to have a party. I baked.
 
-I've never heard of such a thing.
+$ I've never heard of such a thing.
 
 We're not having a party because I'm surprising Debra.
 
@@ -721,9 +717,7 @@ This is a surprise, so you can't go telling her anything.
 
 All right. So thank you very much. I'm going to go.
 
-Wait. Just one minute now. Here.
-
-It's a long trip to Bear Mountain. Take fruit.
+Wait. Just one minute now. Here. It's a long trip to Bear Mountain. Take fruit.
 
 Okay, thanks.
 
@@ -749,7 +743,7 @@ It's still your birthday, thought.
 
 We want to have a nice cozy birthday.
 
-Isn't that cozy?
+$ Isn't that cozy?
 
 I know what you're up to.
 
@@ -767,7 +761,7 @@ Doesn't feel good to be honest with them?
 
 It does feel good.
 
-Not as good as this, though.
+$ Not as good as this, though.
 
 You were 100% right.
 
@@ -799,7 +793,7 @@ Nice job.
 
 I should have known better. Why did...
 
-Especially with me parents, the only people who treat a box of fruit like it's plutonium.
+Especially with my parents, the only people who treat a box of fruit like it's plutonium.
 
 I chickened out. I made a mistake.
 
@@ -835,7 +829,7 @@ And if you can't accept what I'm telling you...then you can't come over here any
 
 Unless you call first.
 
-That's it. I think I did it all.
+$ That's it. I think I did it all.
 
 What? This has nothing to do with me.
 
@@ -875,9 +869,7 @@ I wanna thank you for your time, Mr.Lasorda.
 
 Okay, Tommy.
 
-I really appreciate this interview.
-
-This will be real quick.
+I really appreciate this interview. This will be real quick.
 
 Okay. Now that you're retired...I was wondering where do you think you're going with that...cookie!!!
 
@@ -1105,7 +1097,7 @@ For this.
 
 The noise, the no-sleep, and the no-time.
 
-Please, know what I mean here.
+Please, you know what I mean here.
 
 You never even say, I love you.
 
@@ -1157,7 +1149,7 @@ Here, this is for you.
 
 What is this? A card.
 
-Got up early to get it for you.
+I Got up early to get it for you.
 
 Why?
 
@@ -1197,13 +1189,9 @@ You still want the talking.
 
 Look, this is better than talking. This is writing.
 
-You couldn't even sign it, Love, Ray.
+You couldn't even sign it, Love, Ray. You signed it, Okay? Ray.
 
-You signed it, Okay? Ray.
-
-Look, you know me. You know.
-
-This all me makes me uncomfortable.
+Look, you know me. You know. This all me makes me uncomfortable.
 
 When I say, I love you, it doesn't sound natural.
 
@@ -1336,7 +1324,7 @@ Name one. Name one person.
 
 Debra.
 
-That's an act.
+$ That's an act.
 
 It's not an act, Dad. She means it.
 
@@ -1426,7 +1414,7 @@ Shut up. You see what I have to put up with?
 
 Look, you don't have to say it. It's okay.
 
-Why is it so important to you all of a sudden?
+$ Why is it so important to you all of a sudden?
 
 My parents never said it.
 
@@ -1464,7 +1452,7 @@ Hey, I can see myself.
 
 Yeah, if you look a little lower.
 
-Hey, this has a crack in it.
+$ Hey, this has a crack in it.
 
 All right, look, you're right.
 
@@ -1479,6 +1467,8 @@ Ah...we're leaving now.
 Okay, thanks. Thanks, Dad.
 
 The shower's fixed...and there's just one thing I want you to know.
+
+What?
 
 Well, we've been talking and...You go ahead, Frank.
 
@@ -1506,9 +1496,7 @@ I love you. I'm so sorry.
 
 Sorry for what?
 
-For never saying it.
-
-But from now, I'm gonna say it to you all the time, all of you.
+For never saying it. But from now, I'm gonna say it to you all the time, all of you.
 
 Even Frank. I love you.
 
@@ -1548,9 +1536,7 @@ What Why?
 
 I thought I could find out why I was the way I was.
 
-But now I know why.
-
-I'm from a mental institution.
+But now I know why. I'm from a mental institution.
 
 I love you, Deb.
 
@@ -1564,15 +1550,11 @@ Thanks, Rob. I love you, too.
 
 Ray, this is not what I wanted.
 
-Could everybody just go back to normal?
-
-I think it was much better before everybody loved each other.
+Could everybody just go back to normal? I think it was much better before everybody loved each other.
 
 Wait a minute.
 
-This is between you two.
-
-This is your problem.
+This is between you two. This is your problem.
 
 Yeah. I was trying to find out why I'm not the most...demonstrative guy, and I thought--
 
@@ -1592,21 +1574,17 @@ I don't understand. Why do you deal with important things we talk about like thi
 
 I'm sorry to ever bring them up.
 
-I' sorry, too.
+I'm sorry, too.
 
 I'll tell you one thing, Ray.
 
-I'll never bother you on this subject again.
-
-I promise.
+I'll never bother you on this subject again. I promise.
 
 Okay, let's just forget I ever said anything, all right?
 
 Come on, Deb.
 
-Your plane leaves in two hours.
-
-You haven't even packed yet.
+Your plane leaves in two hours. You haven't even packed yet.
 
 Oh, God Look, I'm sorry.
 

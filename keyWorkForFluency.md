@@ -286,4 +286,55 @@ a detached house
     1. Can you hang these trousers on the wardrobe please?
     2. I prefer to sleep on a firm mattress. If it's too soft, I find it gives me a sore back.
     3. I propped myself up at a couple of pillows, so that I could read comfortably in bed.
-    4. When I went into her room, Farah was crying in her pillow.
+    4. When I went into her room, Farah was crying in her pillow. She was obviously still upset about splitting up from her boyfriend.
+
+3. Notes
+    1. I was so tired last night. I was asleep before my head hit the pillow!
+    2. When my parents turn the lights out, I read my book under the blankets with a torch.
+    3. Don't forget to set the alarm. We have to be up early tomorrow.
+
+- bath and shower
+1. Verb + bath / shower
+    1. I undressed quickly and get into the bath.
+    2. How often do you take a bath?
+    3. When I get out of the shower, I discovered there were no towels in the bathroom!
+    4. Don't forget to clean the bath when you've finished. There's cloth under the basin.
+    5. I'll be home in about twenty minutes. Could you run a bath for me, please?
+    6. I turned off the shower and reached for a towel.
+    7. My brother lies in the bath for ages, which means that nobody else can get into the bathroom.
+    8. Marta! Run up to the bathroom and turn the water off before the bath overflows.
+
+2. Adjective collocations
+    1. Have I got time for a quick shower before we have to leave for the theatre?
+    2. I had a long, hot bath after the game to soothe my aching muscles. I soaked for nearly an hour.
+    3. He has cold shower ever morning to waken himself up. I don't know how he can do that.
+    4. I love standing under a hot shower when I get back from work in the evening. It only takes a couple of minutes to relax the tense muscles in my neck.
+
+3. Notes
+    1. Could you see who is at the door? I'm in the bath.
+    2. Turn the taps off or the bath will overflow!
+
+- towel
+1. Common expressions
+    1. There are no paper towels in the washroom and the electric hand drier is broken!
+    2. If there's one thing I hate, it's dirty towels!
+    3. I dried myself with your towel by mistake. It's exactly the same as mine!
+    4. There's nothing nicer
+    5. I can't find a clean dish towel anywhere, so I'm afraid I can't dry the dishes!
+    6. Sorry, I've split some coffee on the carpet. Hove you a cloth or some paper towels?
+    7. We can buy beach towels when we get there. They're much cheaper in Spain.
+
+- toilet
+    1. Verb and adjective collocations
+        1. Don't forget to wash your hands after you've go to the toilet.
+        2. I need the toilet, so can you stop the video for a few minutes?
+        3. We couldn't use the public toilets in the park because they had been vandalised.
+        4. Nobody could use the toilet because it was out of order.
+        5. Excuse me, is there a disabled toilet? My friend is in a wheelchair.
+        6. There was a sign above the toilet bowl which said, "Please flush toilet when finished".
+        7. There was a queue outside the ladies toilets. Why is there never one outside the gents?
+
+        2. Toilet + noun
+            1. Maria, we're out of toilet paper. Could you get some when you're out?
+            2. I wish your grandfather would remember to put the toilet seat up!
+            3. There was no wheelchair access and no disabled toilet facilities at the concert.
