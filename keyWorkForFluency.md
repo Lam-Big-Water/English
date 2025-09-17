@@ -93,3 +93,20 @@ Issue:
 "The top of the stairs" is correct but could be more precise.
 Corrected:
 "My office is at the top of the stairs."
+
+- room
+我让出了我的房间给来香港旅游的亲戚过夜.
+1. I share my room for my relation who comes to here toturi.
+
+我妈总是跟我说，房间要保持整洁.
+2. My Ma'am always says, you should tidy your room.
+
+我二伯正在出租他们的房间.
+3. My second uncle letting out his rooms.
+
+我弟的房间总是乱糟糟的.
+4. My brother's room always untidy.
+
+我们的新房有两个独立的房间.
+5. Our new house have a two single rooms.
+
