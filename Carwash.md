@@ -366,3 +366,45 @@
 ---
 
 **总计：260句/词**（已包含之前全部内容，新增20句排位告知）
+
+以下是告知顾客自己英文不太好、希望对方放慢语速或提供手势指引的20句中英对照句子，涵盖礼貌请求、解释原因、感谢理解等不同场景：
+
+---
+
+### 告知英文不好/请求放慢语速/请求手势指引 (261-280)
+
+#### 一、 礼貌请求放慢语速 (261-265)
+
+261. **I'm sorry, my English is not very good. Could you please speak slowly?** (抱歉，我的英文不太好。您能说慢一点吗？)
+262. **Would you mind speaking a little slower? I'm still learning English.** (您介意说慢一点吗？我还在学英语。)
+263. **Please speak slowly so I can understand you better. Thank you!** (请说慢一点，这样我能更好地理解您。谢谢！)
+264. **I'm still learning English. Could you repeat that more slowly?** (我还在学英语。您能再慢一点重复一遍吗？)
+265. **Sorry, I didn't catch that. Could you say it again, more slowly?** (抱歉，我没听清。您能再说一遍，慢一点吗？)
+
+#### 二、 请求手势指引 (266-270)
+
+266. **If it's easier, you can show me with your hands. I'll understand better.** (如果方便的话，您可以用手势比划一下。我会更好理解。)
+267. **Could you point to where you want me to clean?** (您能指一下需要我清洗哪里吗？)
+268. **My English is limited. Using gestures would really help. Thanks!** (我的英文水平有限。用手势会很有帮助。谢谢！)
+269. **Please feel free to use hand signals. I'm used to following them.** (请尽管用手势指挥。我很习惯看手势。)
+270. **If you need me to move the car, just wave your hand like this, and I'll understand.** (如果您需要我挪车，像这样挥挥手，我就明白了。)
+
+#### 三、 解释原因并请求帮助 (271-275)
+
+271. **I'm new here and still practicing my English. Please bear with me.** (我是新来的，还在练习英语。请多包涵。)
+272. **I understand car wash words better than everyday English. Simple words help.** (我听得懂洗车相关的词，日常英语不太行。简单点的词就好。)
+273. **If I look confused, please try showing me. That works best for me.** (如果我看上去很困惑，请试着做给我看。这样我最容易懂。)
+274. **I can understand simple English best. Short sentences are great.** (简单的英语我最能听懂。短句子就好。)
+275. **I'm better at understanding than speaking. So if you speak slowly, I'll get it.** (我听力比口语好。所以您说慢一点，我就能听懂。)
+
+#### 四、 感谢理解与安抚顾客 (276-280)
+
+276. **Thank you for being patient with my English. I really appreciate it.** (谢谢您对我的英语这么耐心。真的很感激。)
+277. **Sorry if I'm slow to respond. I'm thinking in English!** (如果我反应慢请见谅。我正在用英语思考呢！)
+278. **I'm doing my best to understand. Thanks for helping me!** (我在尽力理解。谢谢您的帮助！)
+279. **Don't worry, I understand car washing. Just speak slowly and I'll be fine.** (别担心，洗车这块我懂。您说慢一点我就没问题。)
+280. **Thanks for your patience. I'm learning English so I can serve customers better.** (谢谢您的耐心。我正在学英语，这样以后能更好地服务顾客。)
+
+---
+
+**总计：280句/词**（已包含之前全部内容，新增20句请求理解与放慢语速）
