@@ -408,3 +408,53 @@
 ---
 
 **总计：280句/词**（已包含之前全部内容，新增20句请求理解与放慢语速）
+
+
+以下是使用**高压水枪冲洗轮毂及车辆其他部位**的20句中英对照句子，涵盖操作说明、注意事项、询问客户需求等不同场景：
+
+---
+
+### 使用高压水枪冲洗轮毂及车辆其他部位 (281-300)
+
+#### 一、 冲洗轮毂相关 (281-290)
+
+281. **I'm going to use the high-pressure washer on your wheels first.** (我先用高压水枪冲洗您的轮毂。)
+282. **The wheels have a lot of brake dust. I'll spray them really well.** (轮毂上有很多刹车粉尘。我会好好冲洗一下。)
+283. **I need to get in between the spokes to clean thoroughly.** (我需要冲洗轮辐之间的缝隙，这样才能彻底干净。)
+284. **This special nozzle helps remove tough brake dust from the wheels.** (这种特殊喷嘴有助于清除轮毂上的顽固刹车粉尘。)
+285. **I'll spray the wheel wells too to get all the mud out.** (我也会冲洗轮拱内部，把泥巴都冲掉。)
+286. **Don't worry, the pressure is safe for your wheels.** (别担心，这个水压对您的轮毂是安全的。)
+287. **I'm using a wider spray pattern so it doesn't damage the paint near the wheels.** (我在用宽幅喷雾模式，这样不会损伤轮毂附近的车漆。)
+288. **The wheels look much cleaner already after the pressure wash.** (高压冲洗后，轮毂看起来干净多了。)
+289. **I'll do a final rinse on the wheels to make sure all the soap is off.** (我会最后再冲洗一遍轮毂，确保没有肥皂残留。)
+290. **Your wheels are very dirty. This might take a few extra minutes.** (您的轮毂很脏。可能需要多花几分钟冲洗。)
+
+#### 二、 冲洗车身及其他部位 (291-300)
+
+291. **Now I'll use the pressure washer to rinse the soap off the body.** (现在我用高压水枪把车身上的肥皂冲掉。)
+292. **I'm starting from the top and working my way down.** (我从上往下冲洗。)
+293. **I need to spray the front grille carefully to get all the bugs out.** (我需要仔细冲洗前格栅，把虫子尸体都冲掉。)
+294. **The undercarriage is very muddy. I'll spray it underneath too.** (底盘很脏。我也会冲洗一下车底。)
+295. **I'm using a lower pressure setting for the painted surfaces.** (喷涂漆面时我用的是较低的水压设置。)
+296. **I'll spray the door jambs to get the dirt out of the hinges.** (我会冲洗门框，把铰链里的污垢冲出来。)
+297. **The mirrors have some dirt in the seams. Let me spray them carefully.** (后视镜缝隙里有脏东西。让我仔细冲一下。)
+298. **I'll use the pressure washer to clean the exhaust tip as well.** (我也会用高压水枪冲洗排气管口。)
+299. **The roof is very dirty. I need to make sure I reach every part.** (车顶很脏。我得确保每个地方都冲到。)
+300. **Almost done with the pressure wash. Just rinsing off the last bit of soap.** (高压冲洗快完成了。最后再冲掉一点肥皂沫。)
+
+#### 三、 注意事项与询问 (301-310)
+
+301. **Is it okay if I spray under the car? It's quite muddy.** (我可以冲洗车底吗？那里很脏。)
+302. **I'll be careful around the sensors and cameras.** (冲洗传感器和摄像头周围时我会小心的。)
+303. **The pressure washer won't hurt the paint as long as I keep it moving.** (只要我不停在一个地方冲，高压水枪就不会伤到车漆。)
+304. **I'm keeping some distance so the pressure isn't too strong on the paint.** (我会保持一定距离，这样水压对车漆不会太强。)
+305. **Let me know if you don't want me to spray a certain area.** (如果有哪个地方您不希望我冲洗，请告诉我。)
+306. **I'll avoid spraying directly into the exhaust pipe.** (我会避免直接对着排气管里面冲。)
+307. **The weather stripping is delicate. I'll be gentle around it.** (车门密封条比较脆弱。冲洗周围时我会轻柔一点。)
+308. **I'm using a rotating nozzle for better cleaning on the wheels.** (我在用旋转喷嘴，这样轮毂能洗得更干净。)
+309. **If the pressure is too strong, just let me know and I'll adjust it.** (如果水压太强，您告诉我，我会调整的。)
+310. **I'll do a quick pressure rinse on the floor mats too.** (我也会用高压水枪快速冲洗一下脚垫。)
+
+---
+
+**总计：310句/词**（已包含之前全部内容，新增30句高压水枪冲洗相关）
