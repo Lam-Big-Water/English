@@ -762,3 +762,223 @@
 ---
 
 这些全部都是指挥车辆的核心指令，没有多余对话。熟读这些就能应对指挥车辆进出工位的所有情况。
+
+
+---
+
+---
+
+以下是20个贴近真实洗车店日常的英文场景，聚焦你提出的4类沟通需求。
+
+---
+
+### 场景1-5：告知第一次来的客户需下载App/小程序取票
+
+**场景1**  
+你：Is this your first time here?  
+客户：Yes.  
+你：You need to download our app to get a ticket first. No ticket, no wash.
+
+**场景2**  
+你：Have you used our system before?  
+客户：No.  
+你：Please scan this QR code. Download the app and get a ticket. Then we can start.
+
+**场景3**  
+客户：Can I just pay cash and wash?  
+你：Sorry, we don't take cash directly. First-time customers must get a ticket through the app.
+
+**场景4**  
+你：Let me help you. Open the app, click "Get Ticket", and you're ready.  
+客户：OK.  
+你：Once you have the ticket number, I'll guide you in.
+
+**场景5**  
+客户：This is too complicated.  
+你：I understand, but the ticket system controls the queue. Without a ticket, I cannot put you in line.
+
+---
+
+### 场景6-10：告知会员也需要取票
+
+**场景6**  
+客户：I'm a member. Do I still need a ticket?  
+你：Yes, members also need a ticket. The machine doesn't check membership — only tickets.
+
+**场景7**  
+客户：I have a monthly pass.  
+你：Even with a monthly pass, please get a ticket first. Then show me your pass when you drive in.
+
+**场景8**  
+客户：Last time I didn't need a ticket.  
+你：Sorry, new rule. Everyone must take a ticket now. Members too.
+
+**场景9**  
+客户：Can you just put me in?  
+你：I wish I could, but the system runs on tickets. Please grab one from the kiosk or app.
+
+**场景10**  
+客户：My membership card is here.  
+你：Thank you. But first, get a ticket. Then I'll scan your card at the wash bay.
+
+---
+
+### 场景11-15：告知等待时间（一个号码10-15分钟）
+
+**场景11**  
+客户：How long is the wait?  
+你：Each ticket takes about 10 to 15 minutes. You are number 12, so around two hours.
+
+**场景12**  
+客户：What does "one number 10 to 15 minutes" mean?  
+你：It means each car takes 10 to 15 minutes. Multiply that by how many tickets are ahead of you.
+
+**场景13**  
+客户：I'm in a hurry.  
+你：Right now there are 8 tickets before you. That's roughly 80 to 120 minutes.
+
+**场景14**  
+客户：Is that exact?  
+你：Not exact — but usually 10 to 15 minutes per car. Could be faster, could be slower.
+
+**场景15**  
+客户：Why so slow?  
+你：Each wash needs time. We follow the ticket order strictly. One ticket = 10 to 15 minutes.
+
+---
+
+### 场景16-20：告知取不到票（已停止取票）
+
+**场景16**  
+客户：The app won't give me a ticket.  
+你：We have stopped taking new tickets. Already 20 tickets in the queue. Tonight we only serve customers who already have tickets.
+
+**场景17**  
+客户：Can you make an exception?  
+你：Sorry, no. Once we reach 20 tickets, the system shuts down. We cannot accept more.
+
+**场景18**  
+客户：I just need a quick rinse.  
+你：I understand, but we already have 20 tickets. That will take us past closing time. No more tickets tonight.
+
+**场景19**  
+客户：When can I come back?  
+你：Tomorrow morning. Come early. Once the queue hits 20 tickets, the system stops.
+
+**场景20**  
+客户：This is really inconvenient.  
+你：I'm sorry. The rule is for everyone. 20 tickets maximum. Right now we are finishing only those with tickets. No new tickets tonight.
+
+---
+
+这20个场景完全围绕你需要的4类沟通内容展开，没有多余对话。熟读后可以直接用在面对外国客户的真实工作环境中。
+
+---
+---
+
+以下是20个贴合你需求的洗车店日常英文场景，分为4组，每组5个场景。
+
+---
+
+### 场景1-5：解释下雨后排队人数多
+
+**场景1**  
+客户：Why is the line so long today?  
+你：After rain, everyone wants to wash their car. The queue is twice as big as normal days. Sorry for the wait.
+
+**场景2**  
+客户：This is ridiculous. I've never seen it this busy.  
+你：It always gets crazy after rain. People rush to clean their cars. Please bear with us.
+
+**场景3**  
+客户：Is it always like this?  
+你：Only for two or three days after rain. Normally it's much shorter. Today we have double the usual customers.
+
+**场景4**  
+客户：I've been waiting forever.  
+你：I understand. But after every rain, everyone thinks the same — time to wash. The queue doubles every time.
+
+**场景5**  
+客户：Can't you wash faster?  
+你：We're doing our best. But when it rains, the next few days are always our busiest. Twice the normal cars.
+
+---
+
+### 场景6-10：告知有同事请假，洗车慢几分钟
+
+**场景6**  
+你：Just to let you know — one of our guys called in sick today.  
+客户：So?  
+你：Each car will take a few extra minutes. Sorry about that.
+
+**场景7**  
+客户：Why is it slower than last week?  
+你：We're short one person today. A colleague is off. Please add about 3 to 5 minutes per car.
+
+**场景8**  
+你：I need to tell everyone — we have one less worker today.  
+客户：How much slower?  
+你：Not much, but a few minutes slower per car. Thank you for your patience.
+
+**场景9**  
+客户：You guys seem slower today.  
+你：Yes, because one staff member is absent. We're doing what we can. It will be a bit slower than usual.
+
+**场景10**  
+客户：What's the delay?  
+你：One person is off today. So each wash takes a few extra minutes. I appreciate your understanding.
+
+---
+
+### 场景11-15：告知店长中午12点左右到
+
+**场景11**  
+客户：Can I speak to the manager?  
+你：The store manager isn't here yet. He usually arrives around 12 noon.
+
+**场景12**  
+客户：When will your boss be in?  
+你：Around noon. Twelve o'clock is his usual time. Can you come back then?
+
+**场景13**  
+客户：Is there a supervisor here?  
+你：Not right now. The manager comes at about 12 noon. I can take a message for him.
+
+**场景14**  
+客户：I need to complain to the owner.  
+你：The store manager will be here around 12. You're welcome to talk to him then.
+
+**场景15**  
+客户：What time does your manager start?  
+你：Normally around 12 noon. He's not in yet. Can I help you with something?
+
+---
+
+### 场景16-20：告知镀膜后一周回来检查
+
+**场景16**  
+你：Your coating is done. Remember — you need to come back in one week.  
+客户：Why?  
+你：We need to check if the coating worked properly. One week later, please.
+
+**场景17**  
+客户：When should I come for my next wash?  
+你：Not tomorrow. Please wait one week. Then come back. We need to inspect the coating result.
+
+**场景18**  
+你：One more thing. After coating, don't wash anywhere else for seven days. Come back to us for a check.  
+客户：OK.  
+你：We want to make sure the coating is holding up. One week.
+
+**场景19**  
+客户：Can I wash my car tomorrow?  
+你：No, please wait one full week. Then bring it back here so we can check the coating quality.
+
+**场景20**  
+你：I've booked your coating inspection for next week. Same day, same time.  
+客户：Is that necessary?  
+你：Yes. We need to see if the coating meets our standard. One week later. Don't skip it.
+
+---
+
+这20个场景完全围绕你提出的4类沟通需求，没有多余内容。每个句子都是你在洗车店工作时可以直接对客户说的真实用语。
