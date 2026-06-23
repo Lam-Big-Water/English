@@ -1,0 +1,37 @@
+- Oh, George, I know how you can get more respect at work. A tie says, I'm the boss.
+- You want me to wear a tie to an airplane parts factory? Yeah, that'll work. You see, the problem with the propeller is... Oh!
+- Honey, I spent 16 years on the line with these guys. It's gonna take a while before they respect me as manager.
+- Well, I'm just trying to help.
+- Carmen, did I put lunch money in your bag?
+- Em. It's there. Don't worry about it. I'll just share with the cheerleaders. They don't eat their food.
+- That's my carpool. I gotta go.
+- Please excuse Carmen from swim class. Because she's having her period. What's this? When did you start having your period?
+- I don't know. What's the date on the note?
+- Carmen, you didn't have to write a fake note. This is wonderful. My Little girl's a woman now. We have to call everybody.
+- What's a period?
+- It's a bullet we dodge. Go get ready.
+- We can talk about this later. I really have to go to school.
+- Oh, one sec, honey. I still have to look for the lunch money. Wait a second. Excuse, Carmen. Excuse, Carmen. Okay, how many weeks have you been having this period?
+- I don't know, six?
+- Six weeks. If you went to a Catholic school, you'd be like a miracle.
+- Okay, I didn't get my period. I just, I hate swim class.
+- Hey, Rico Suave, come on, let's go. You're gonna make us all late for work.
+- Mom, wait.
+- George, you're not leaving. She lied to get out of swim class. Carmen, we're dealing with this now.
+- Look, Angie, is it that big a deal? Why does she need to know how to swim? We're already here.
+- George, that's not the point. She lied.
+- They lied because they're not afraid of you.
+- Benny, we're handling this.
+- I don't see anybody getting hit.
+- We don't hit our kids, Benny. We threaten to send them to your house.
+- Hey, hey, hey, hey.
+- Isn't this fun for me? Okay, I know waht to do. You gotta learn how bad lying is, so I'm gonna lie to you.
+- Go ahead.
+- Not now. When you're not expecting it, I'm gonna lie to you, and you'll see how hurtful it is.
+- Fine.
+- And don't worry. I'm finally gonna fix the brakes on your bike after school.
+- Wait, is that the lie?
+- Wear a helmet.
+- You know, George learned that lying trick from me.
+- Waht was your lie?
+- Oh, that we didn't have enough money to send him to college.
