@@ -1,0 +1,7 @@
+- So, what do you think?
+- Wow! It's for you, right?
+- It's for both of us. Don't go away.
+- Don't worry. There's not enough blood left in my legs to go anywhere.
+- Hey, it's Charlie. Do your thing when you hear the beep.
+- Listen, you lousy SOB (son of bitch). I will not be treated like this. Either you call me, or you are gonna be very, very sorry. I love you, Monkey Man.
+- 
