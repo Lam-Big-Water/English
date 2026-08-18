@@ -23,6 +23,9 @@ Staff: Hey — $178 for the exterior wash. If you'd like vacuuming as well, that
 Customer: I'll just take the outside wash. Don't need the vacuum.
 
 
+Customer: Hey, how many washes do I have left?
+Staff: Three more after this. You wanna grab another ten? Do it now and I'll toss in an extra one on me. / You've got three after this one. Hey, want to grab another ten? If you do it today, I'll throw in one for free.
+
 Customer: Wait, $98 for vacuuming only?
 Staff: Yeah — that covers your mats and seats. And keep in mind, we're a quick-wash shop, so we don't wipe down interiors or clean windows.
 Customer: Alright, exterior only. Skip the vacuum.
