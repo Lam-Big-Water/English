@@ -29,3 +29,41 @@ Staff: Three more after this. You wanna grab another ten? Do it now and I'll tos
 Customer: Wait, $98 for vacuuming only?
 Staff: Yeah — that covers your mats and seats. And just so you know, we're a quick-wash place, so we don't wipe down interiors or clean windows.
 Customer: Alright, exterior only. Skip the vacuum.
+
+
+- servicing
+
+Customer: Hi, how long is the wait for a wash?
+Staff: Hi, there are about 3 or 4 cars ahead of you, so roughly 40 minutes.
+Customer: Oh, can I leave my keys with you? I wanna run to the supermarket real quick.
+Staff: I'm the only one here today, so I can't really do that. Sorry about that.
+
+
+Customer: The interior looks great—really good job. But the wheels don't look like they've been cleaned. Look at all this brake dust. (He wipes his finger on the wheel.)
+Staff: I'm sorry about that. Our express wash doesn't include wheel cleaning. We did spray them down with the pressure washer, but that kind of buildup is pretty stubborn, so it didn't do much.
+Customer: So do you offer a wheel cleaning service?
+Staff: We do. I'll have my manager give you a quote in a bit.
+
+
+Customer: Back in, right?
+Staff: Yep, pull into the yellow box.
+Customer: Good here?
+Staff: Too far left. Move over to the right—put your tires right on that yellow line.
+
+
+Customer: Do I need to get out?
+Staff: You can wait in the car or outside in the waiting area—up to you.
+Customer: Alright, I'll stay in the car.
+Staff: Okay, just close your sunroof and fold in your side mirrors for me.
+
+
+Customer: Hi, can you fix this scratch?
+Staff: Our detailer's not in today, so I can't say for sure. Would you mind leaving your number? I'll have him call you to set up a time when he's back so he can take a look and see if it's fixable.
+
+
+Customer: Can I still get a wash?
+Staff: Sorry, we're almost closed and we've got a few cars waiting. Won't have time for yours.
+Customer: Got it. What time do you open tomorrow?
+Staff:8 in the morning. Show up early and I'll take care of you first.
+
+
