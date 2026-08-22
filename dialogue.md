@@ -67,3 +67,7 @@ Customer: Got it. What time do you open tomorrow?
 Staff:8 in the morning. Show up early and I'll take care of you first.
 
 
+Customer: Why can't I get a ticket on the app?
+Staff: Sorry, we close the system at 7. We already had over 20 cars lined up by then, and that's pretty much all we can handle for the rest of the night.
+
+
