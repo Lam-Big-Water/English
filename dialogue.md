@@ -33,6 +33,16 @@ Customer: Alright, exterior only. Skip the vacuum.
 
 - servicing
 
+Customer: Hey, how long's the wait for a wash right now?
+You: Hey, there's about one or two cars ahead of you — should be around half an hour.
+
+
+Customer: Hi, how long is the wait for a wash?
+You: I hate to say it, but we're not taking any more cars today — we're way overbooked. We already have three cars sitting here waiting.
+Customer: So after those three are done, I'm good to go?
+You: Can't say for sure — there are still some app ticket holders who haven't arrived yet. So I really can't promise anything at this point.
+
+
 Customer: Hi, how long is the wait for a wash?
 Staff: Hi, there are about 3 or 4 cars ahead of you, so roughly 40 minutes.
 Customer: Oh, can I leave my keys with you? I wanna run to the supermarket real quick.
