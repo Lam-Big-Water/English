@@ -33,9 +33,49 @@ Customer: Alright, exterior only. Skip the vacuum.
 
 - servicing
 
+---
+
+Customer: Hi, I'd like to get a deep interior cleaning.
+
+You: Oh, I'm sorry — our detailer's off today, so we're not doing any detailing services. But if you leave me your number, I'll have my manager reach out and get you scheduled.
+
+---
+
+Customer: Is this okay?
+
+You: You're not quite in the sensor zone — back up a little.
+
+Customer: Now?
+
+You: Keep coming back. Yep, right there — stop!
+
+---
+
+Customer: Is this okay?
+
+You: You're a little past the sensor — pull forward a bit.
+
+Customer: Now?
+
+You: Keep going. Yep, right there — stop!
+
+---
+
+Customer: Is this okay?
+
+You: You're fine, but your wheel's not straight.
+
+Customer: Now?
+
+You: One more full turn to the left. Yeah, there you go!
+
+---
+
 Customer: Hey, how long's the wait for a wash right now?
+
 You: Hey, there's about one or two cars ahead of you — should be around half an hour.
 
+---
 
 Customer: Hi, how long is the wait for a wash?
 You: I hate to say it, but we're not taking any more cars today — we're way overbooked. We already have three cars sitting here waiting.
