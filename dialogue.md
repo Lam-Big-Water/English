@@ -1,8 +1,22 @@
 - selling
 
-Customer: Hi, how much do you charge for a car wash?  
-Staff: It's $276, sir. Just so you know, we're pretty swamped today, so we're not taking walk-ins. You'll have to text our manager on WhatsApp to book a time—here's his number.
+Customer: Hi, this is my first time here. How much do you charge for a wash?
 
+Attendant: It's 276 Hong Kong dollars.
+
+Customer: What does that include?
+
+Attendant: You get either a touchless wash or a hand wash. We also vacuum the floor mats and the seats.
+
+Customer: Got it. How long is the wait right now?
+
+Attendant: There are one or two cars ahead of you, so about 15 to 30 minutes.
+
+Customer: Alright, that's not too bad. I'll wait.
+
+Attendant: No problem. Just pull up behind this car and I'll let you know when it's your turn.
+
+---
 
 Customer: So I pay $288 for a membership, and then I get member rates on everything?
 Staff: That's how it used to be, but not now. Now if you get a top-up deal or a daily plan, you get the member price right away—no need to pay that $288 first.
