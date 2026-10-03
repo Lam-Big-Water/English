@@ -18,6 +18,23 @@ Attendant: No problem. Just pull up behind this car and I'll let you know when i
 
 ---
 
+S: Sorry to bother you, sir.
+C: Oh, it’s fine. What’s going on?
+
+S: Your car’s being washed right now, it won’t take long. Would you mind if one of our guys has a quick chat with you while you wait?
+C: Yeah, that’s okay. I’ve got time.
+
+S: Cool! This is Mr.Ming, our new sales guy. He can tell you about our wash plans and packages if you want.
+M: Hey Mr.B, nice to meet you. I’m Mr.Ming. Welcome to our shop.
+C: Hi, nice to meet you. It’s my first time here.
+
+M: Awesome. While your car gets cleaned, I can show you our memberships and car care deals. No pressure at all.
+S: I’ll go check on your car. You can ask Mr.Ming anything you want.
+C: Alright, thanks.
+M: Let me know if you want some water while you wait.
+
+---
+
 Customer: So I pay $288 for a membership, and then I get member rates on everything?
 Staff: That's how it used to be, but not now. Now if you get a top-up deal or a daily plan, you get the member price right away—no need to pay that $288 first.
 
