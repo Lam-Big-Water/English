@@ -17,6 +17,18 @@ Customer: Alright, that's not too bad. I'll wait.
 Attendant: No problem. Just pull up behind this car and I'll let you know when it's your turn.
 
 ---
+C: How long will the car wash take?
+
+A: There are two cars waiting out front right now. We can put you down as the third one. It’ll be around 30 minutes. Does that work for you?
+
+C: 30 minutes… Can I leave the key with you? Once you finish washing it, just park the car on the road opposite the shop entrance.
+
+A: Sorry sir. For our quick wash, company rules say we can’t move customers’ cars. You’ll need to drive it in and out yourself.
+
+C: Alright, then I’ll just wait here.
+
+---
+
 
 S: Sorry to bother you, sir.
 C: Oh, it’s fine. What’s going on?
