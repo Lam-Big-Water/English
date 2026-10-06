@@ -23,7 +23,7 @@ A: There are two cars waiting out front right now. We can put you down as the th
 
 C: 30 minutes… Can I leave the key with you? Once you finish washing it, just park the car on the road opposite the shop entrance.
 
-A: Sorry sir. For our quick wash, company rules say we can’t move customers’ cars. You’ll need to drive it in and out yourself.
+A: Sorry sir. For our quick wash, we’re not allowed to move customers’ cars per company rules. You gotta drive it in and out yourself.
 
 C: Alright, then I’ll just wait here.
 
@@ -31,19 +31,12 @@ C: Alright, then I’ll just wait here.
 
 
 S: Sorry to bother you, sir.
+
 C: Oh, it’s fine. What’s going on?
 
-S: Your car’s being washed right now, it won’t take long. Would you mind if one of our guys has a quick chat with you while you wait?
+S: Our manager would like to chat with you for a bit. Do you mind?
+
 C: Yeah, that’s okay. I’ve got time.
-
-S: Cool! This is Mr.Ming, our new sales guy. He can tell you about our wash plans and packages if you want.
-M: Hey Mr.B, nice to meet you. I’m Mr.Ming. Welcome to our shop.
-C: Hi, nice to meet you. It’s my first time here.
-
-M: Awesome. While your car gets cleaned, I can show you our memberships and car care deals. No pressure at all.
-S: I’ll go check on your car. You can ask Mr.Ming anything you want.
-C: Alright, thanks.
-M: Let me know if you want some water while you wait.
 
 ---
 
@@ -81,6 +74,16 @@ Customer: Alright, exterior only. Skip the vacuum.
 Customer: Hi, I'd like to get a deep interior cleaning.
 
 You: Oh, I'm sorry — our detailer's off today, so we're not doing any detailing services. But if you leave me your number, I'll have my manager reach out and get you scheduled.
+
+---
+
+Customer: Hi, can you clean the interior? My kid threw up in the car this morning. I need it cleaned as soon as possible.
+
+Washer: Sorry sir. Our car detailer’s off today. Maybe try another shop nearby.
+
+Customer: It has to be a detailer? You guys can’t sort this out?
+
+Washer: Nah, sir. We only do basic washes. We aren’t trained to handle this kind of mess. Sorry about that.
 
 ---
 
