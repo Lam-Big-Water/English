@@ -1,5 +1,23 @@
 - selling
 
+
+---
+
+**Customer**: Hi, can you clean my car interior?
+
+**Washer**: Alright. Do you want a basic interior clean or deep detail?
+
+**Customer**: What’s the difference?
+
+**Washer**: Basic clean is HK$399. We vacuum and wipe the inside, free car wash included. Takes around an hour.
+Deep clean starts at HK$1288. Price and time depend on how dirty the car is. Also comes with a free wash.
+
+**Customer**: I’ll take the deep clean. Can I leave my keys here with you?
+
+**Washer**: Sorry. All detailing work needs advance booking. We’re fully booked for detailing today, no empty bays left.
+
+---
+
 Customer: Hi, this is my first time here. How much do you charge for a wash?
 
 Attendant: It's 276 Hong Kong dollars.
