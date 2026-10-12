@@ -3,6 +3,20 @@
 
 ---
 
+**Customer**: Hi, do you wash motorcycles here?
+
+**Washer**: Hi sir, sure. We do bike washes and coating too.
+
+**Customer**: Just a basic wash for me.
+
+**Washer**: No problem, sir. It’s HK$258, takes about an hour.
+
+**Customer**: Can you do it now? Or tomorrow? I live nearby. I thought you didn’t wash bikes at all.
+
+**Washer**: Got it. Sorry sir, all detailing work needs booking in advance, bike washes as well. We’re all booked up today, no empty bays. Can you leave your number? I’ll hit you up on WhatsApp to sort out a time. Sound good?
+
+---
+
 **Customer**: Hi, can you clean my car interior?
 
 **Washer**: Alright. Do you want a basic interior clean or deep detail?
