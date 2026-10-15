@@ -3,6 +3,16 @@
 
 ---
 
+**Customer:** Hi, how much is the car wash?
+
+**Washer:** It’s HK$276, sir.
+
+**Customer:** What’s included?
+
+**Washer:** We do a quick wash on the body and vacuum the floor mats. Since we’re an express wash shop, we don’t clean the wheels or full interior. The whole wash takes around 15 to 20 minutes.
+
+---
+
 **Customer**: Hi, do you wash motorcycles here?
 
 **Washer**: Hi sir, sure. We do bike washes and coating too.
@@ -13,7 +23,7 @@
 
 **Customer**: Can you do it now? Or tomorrow? I live nearby. I thought you didn’t wash bikes at all.
 
-**Washer**: Got it. Sorry sir, all detailing work needs booking in advance, bike washes as well. We’re all booked up today, no empty bays. Can you leave your number? I’ll hit you up on WhatsApp to sort out a time. Sound good?
+**Washer**: Got it. Sorry sir, all detailing work needs booking in advance, bike washes as well. We’re fully booked for today, no available bays left. Could you leave your phone number with me? I’ll message you on WhatsApp to arrange a time. Does that work for you?
 
 ---
 
