@@ -9,7 +9,7 @@
 
 **Customer:** What’s included?
 
-**Washer:** We do a quick wash on the body and vacuum the floor mats. Since we’re an express wash shop, we don’t clean the wheels or full interior. The whole wash takes around 15 to 20 minutes.
+**Washer:** We do a quick wash on the body and vacuum the floor mats. Since we’re an express wash shop, we don’t clean the wheels and full interior. The whole wash takes around 15 to 20 minutes.
 
 ---
 
